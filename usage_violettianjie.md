@@ -98,8 +98,9 @@
 - 持续了很久的习惯：
 	- 每天早晚内观各1小时 2013年9月至今
 	
-- 常用品牌： [蛋糕一点一刻（深圳&成都）](http://www.1date1cake.com/)、[Allbirds 鞋](https://www.allbirds.cn/)
+- 喜欢的品牌： [蛋糕一点一刻（深圳&成都）](http://www.1date1cake.com/)、[Allbirds 鞋](https://www.allbirds.cn/) 、[amanresorts 安缦度假酒店](https://www.aman.com/)
 - 喜欢的茶：西湖龙井，台湾乌龙梨山，东方美人。
+- 喜欢的花：梅花。
 - 喜欢的节日： 生日、二十四节气、平安夜。
 - 喜欢聚会的店： 成都 古今茶语、枣子树素菜馆；杭州 安缦法云和茶馆 、知味观味庄； 深圳 新梅园素食餐厅、泰炯音乐餐厅、just life 这里咖啡馆；北京：京兆尹餐厅。
 
